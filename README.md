@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tennis0713
 - 👀 I’m interested in ...Computer Repair, swimming, 
-- 🌱 I’m currently learning ... computers codes.
+- 🌱 I’m currently learning ... computers codes at Bitwise.
 - 💞️ I’m looking to collaborate on ... owning IBM.
 - 📫 How to reach me ... by email: tennnis0525.sr@gmail.com
 
